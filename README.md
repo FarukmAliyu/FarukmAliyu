@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FarukmAliyu
-- 👀 I’m interested in ...Web & App Development
+- 👀 I’m interested in ...Web & Mobile App Development
 - 💞️ I’m looking to collaborate on ...Innovative Projects
 - 📫 How to reach me ...email-farukmuktaraliyu@gmail.com 
 - 😄 Pronouns: ...
